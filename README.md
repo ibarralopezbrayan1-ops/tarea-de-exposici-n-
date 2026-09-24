@@ -1,1 +1,1 @@
-tarea de 6 b
+tarea de 6
